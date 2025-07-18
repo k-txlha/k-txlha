@@ -13,7 +13,7 @@
 
 ---
 
-📫 Reach me at: [youremail@example.com](mailto:talhakhan7640@gmail.com)  
+📫 Reach me at: [talhakhan7640@gmail.com](mailto:talhakhan7640@gmail.com)  
 📄 Check out my → [Resume](https://drive.google.com/file/d/1sS8BFsZqoWtY4EfQNmsd4wOrgDb9ubhJ/view?usp=sharing)
 
 ---
