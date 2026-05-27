@@ -14,7 +14,7 @@
 ---
 
 📫 Reach me at: [talhakhan7640@gmail.com](mailto:talhakhan7640@gmail.com)  
-📄 Check out my → [Resume](https://drive.google.com/file/d/1sS8BFsZqoWtY4EfQNmsd4wOrgDb9ubhJ/view?usp=sharing)
+📄 Check out my → [Resume](https://drive.google.com/file/d/1WIOrFr19U6e4g3W6oZZkqXDEzPfeFpV2/view?usp=sharing)
 
 ---
 
